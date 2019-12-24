@@ -1,1 +1,0 @@
-# altakafulalsehi.com
